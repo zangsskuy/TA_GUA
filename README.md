@@ -1,0 +1,2 @@
+# TA_GUA
+JANGAN NYOLONG!!
